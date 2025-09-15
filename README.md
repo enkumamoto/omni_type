@@ -19,7 +19,7 @@ Mais do que uma banda de rock ou metal, a **Omni Type** é uma experiência sono
 ## 🎤 Press Kit – Omni Type
 
 📸 **Fotos da Banda**
-[Baixar fotos oficiais](#) (adicione aqui link para pasta no Google Drive ou site oficial)
+[Baixar fotos oficiais](#)
 
 🎧 **Streaming**
 
