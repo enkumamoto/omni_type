@@ -16,16 +16,19 @@ Mais do que uma banda de rock ou metal, a **Omni Type** é uma experiência sono
 [Baixar fotos oficiais](#) (adicione aqui link para pasta no Google Drive ou site oficial)
 
 🎧 **Streaming**
-Spotify: \[https://open.spotify.com/intl-pt/artist/1SsgzkYScPAA5t2yhZ0W5N?si=L8-Lu9RXSbGK8llhllAVTg]
-YouTube: \[https://www.youtube.com/channel/UC-_VMnFe-ZhuXP83EaotwsQ]
-Deezer: \[https://www.deezer.com/en/artist/196550597]
-Apple Music: \[https://music.apple.com/br/album/my-old-tapes-vol-1-ep/1826901884]
+
+* [Spotify](https://open.spotify.com/intl-pt/artist/1SsgzkYScPAA5t2yhZ0W5N?si=L8-Lu9RXSbGK8llhllAVTg)
+* [YouTube](https://www.youtube.com/channel/UC-_VMnFe-ZhuXP83EaotwsQ)
+* [Deezer](https://www.deezer.com/en/artist/196550597)
+* [Apple Music](https://music.apple.com/br/album/my-old-tapes-vol-1-ep/1826901884)
 
 📱 **Redes Sociais**
-Instagram: [https://www.instagram.com/omnitypeband/](#)
+
+* [Instagram](https://www.instagram.com/omnitypeband/)
 
 📩 **Contato**
-E-mail para imprensa e shows: **[Omni Type Mail](mailto:omnitypeband@gmail.com)**
-Telefone / WhatsApp: **(+55) 83 9XXXX-XXXX**
+
+* **E-mail:** [omnitypeband@gmail.com](mailto:omnitypeband@gmail.com)
+* **WhatsApp:** (+55) 83 9XXXX-XXXX
 
 ---
