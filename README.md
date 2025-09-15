@@ -29,6 +29,5 @@ Mais do que uma banda de rock ou metal, a **Omni Type** é uma experiência sono
 📩 **Contato**
 
 * **E-mail:** [omnitypeband@gmail.com](mailto:omnitypeband@gmail.com)
-* **WhatsApp:** (+55) 83 9XXXX-XXXX
 
 ---
