@@ -26,6 +26,7 @@ Mais do que uma banda de rock ou metal, a **Omni Type** é uma experiência sono
 * [YouTube](https://www.youtube.com/channel/UC-_VMnFe-ZhuXP83EaotwsQ)
 * [Deezer](https://www.deezer.com/en/artist/196550597)
 * [Apple Music](https://music.apple.com/br/album/my-old-tapes-vol-1-ep/1826901884)
+* [Amazon Music](https://music.amazon.com.br/artists/B0BRYK4N1K/omni-type)
 
 📱 **Redes Sociais**
 
