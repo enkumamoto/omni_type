@@ -1,3 +1,9 @@
+<p align="center">
+  <img src="./Aylan_e_Eiji.jpg" alt="Omni Type - Aylan e Eiji" width="600"/>
+</p>
+
+---
+
 **Omni Type** é uma banda paraibana que transita entre o rock e o metal, sem se prender a rótulos ou estilos. Para o grupo, a música é um território de exploração — cada composição é uma oportunidade de desbravar novas sonoridades, misturando influências e criando algo único.
 
 O projeto nasceu em 2018 com cinco integrantes e, ao longo dos anos, passou por mudanças até se consolidar com dois dos membros fundadores, responsáveis pela essência criativa da banda. Essa trajetória foi marcada por pausas, retomadas e um acervo de composições que ficaram guardadas por anos, aguardando o momento certo para ganhar vida.
