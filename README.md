@@ -4,13 +4,15 @@
 
 ---
 
-**Omni Type** é uma banda paraibana que transita entre o rock e o metal, sem se prender a rótulos ou estilos. Para o grupo, a música é um território de exploração — cada composição é uma oportunidade de desbravar novas sonoridades, misturando influências e criando algo único.
+**Omni Type** é uma banda paraibana que transita entre o rock e o metal sem se limitar a rótulos ou estilos definidos. Para o grupo, a música é um território de exploração constante — cada composição representa uma oportunidade de desbravar novas sonoridades, mesclando influências diversas e construindo algo genuinamente único.
 
-O projeto nasceu em 2018 com cinco integrantes e, ao longo dos anos, passou por mudanças até se consolidar com dois dos membros fundadores, responsáveis pela essência criativa da banda. Essa trajetória foi marcada por pausas, retomadas e um acervo de composições que ficaram guardadas por anos, aguardando o momento certo para ganhar vida.
+O projeto teve início em 2018 com cinco integrantes e, ao longo dos anos, passou por transformações naturais até se consolidar com dois dos membros fundadores, responsáveis por manter viva a essência criativa da banda. Essa caminhada foi marcada por pausas, retomadas e por um vasto acervo de composições que permaneceram guardadas por anos, à espera do momento certo para finalmente ganhar forma e voz.
 
-Em 2024, com a cena do rock paraibano ganhando novo fôlego, a banda retomou suas atividades com mais maturidade e uma identidade bem definida, finalmente adotando o nome **Omni Type**. O resultado desse renascimento é o lançamento do primeiro EP em 2025, um trabalho que resgata músicas guardadas desde os primeiros anos da banda — verdadeiras “fitas demo” modernas, carregadas de energia, nostalgia e personalidade.
+Em 2024, impulsionada pelo novo fôlego da cena do rock paraibano, a banda retomou suas atividades com mais maturidade artística e uma identidade musical bem definida, adotando oficialmente o nome **Omni Type**. O resultado desse renascimento se materializa no lançamento do primeiro EP em 2025, um trabalho que resgata músicas compostas nos primeiros anos da banda — verdadeiras “fitas demo” modernas, repletas de energia, nostalgia e personalidade.
 
-Mais do que uma banda de rock ou metal, a **Omni Type** é uma experiência sonora que une peso, melodia e liberdade criativa.
+Após o lançamento do EP, a banda passou novamente por mudanças em sua formação, incorporando mais dois integrantes. Essa nova configuração ampliou o campo sonoro do grupo, agregando novas influências, novas ideias e novas possibilidades criativas às composições.
+
+Mais do que uma banda de rock ou metal, a **Omni Type** se apresenta como uma experiência sonora que combina peso, melodia e liberdade criativa, refletindo sua trajetória, suas transformações e sua busca constante por identidade musical.
 
 ---
 
