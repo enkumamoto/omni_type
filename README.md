@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="./Aylan_e_Eiji.jpg" alt="Omni Type - Aylan e Eiji" width="600"/>
+  <img src="./OT03.jpeg" alt="Omni Type - Aylan e Eiji" width="600"/>
 </p>
 
 ---
