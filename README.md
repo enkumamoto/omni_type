@@ -16,16 +16,10 @@ Mais do que uma banda de rock ou metal, a **Omni Type** é uma experiência sono
 
 ## 👥 Membros da Banda
 
-<<<<<<< HEAD
-* **Aylan Cavalcanti** – Vocal e Guitarra
-* **João Abrantes** – Guitarra
-* **Joas Pedroza** - Baixo
-* **Eiji Kumamoto** – Bateria
-=======
-- **Aylan Cavalcanti** – Vocal, Guitarra e Baixo
-- **João Abrantes** – Guitarra e Baixo
+- **Aylan Cavalcanti** – Vocal e Guitarra
+- **João Abrantes** – Guitarra
+- **Joas Pedroza** - Baixo
 - **Eiji Kumamoto** – Bateria
->>>>>>> link_drive
 
 ---
 
