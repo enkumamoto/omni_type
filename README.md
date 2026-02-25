@@ -16,30 +16,30 @@ Mais do que uma banda de rock ou metal, a **Omni Type** é uma experiência sono
 
 ## 👥 Membros da Banda
 
-* **Aylan Cavalcanti** – Vocal, Guitarra e Baixo
-* **João Abrantes** – Guitarra e Baixo
-* **Eiji Kumamoto** – Bateria
+- **Aylan Cavalcanti** – Vocal, Guitarra e Baixo
+- **João Abrantes** – Guitarra e Baixo
+- **Eiji Kumamoto** – Bateria
 
 ---
 
 ## 🎤 Press Kit – Omni Type
 
-📸 **[Fotos oficiais](./Aylan_e_Eiji.jpg)**
+📸 **[Fotos oficiais](https://drive.google.com/drive/folders/1h8MC_LHb6-f4yI1NluQXp0AADuM9uTiS?usp=drive_link)**
 
 🎧 **Streaming**
 
-* [Spotify](https://open.spotify.com/intl-pt/artist/1SsgzkYScPAA5t2yhZ0W5N?si=L8-Lu9RXSbGK8llhllAVTg)
-* [YouTube](https://www.youtube.com/channel/UC-_VMnFe-ZhuXP83EaotwsQ)
-* [Deezer](https://www.deezer.com/en/artist/196550597)
-* [Apple Music](https://music.apple.com/br/album/my-old-tapes-vol-1-ep/1826901884)
-* [Amazon Music](https://music.amazon.com.br/artists/B0BRYK4N1K/omni-type)
+- [Spotify](https://open.spotify.com/intl-pt/artist/1SsgzkYScPAA5t2yhZ0W5N?si=L8-Lu9RXSbGK8llhllAVTg)
+- [YouTube](https://www.youtube.com/channel/UC-_VMnFe-ZhuXP83EaotwsQ)
+- [Deezer](https://www.deezer.com/en/artist/196550597)
+- [Apple Music](https://music.apple.com/br/album/my-old-tapes-vol-1-ep/1826901884)
+- [Amazon Music](https://music.amazon.com.br/artists/B0BRYK4N1K/omni-type)
 
 📱 **Redes Sociais**
 
-* [Instagram](https://www.instagram.com/omnitypeband/)
+- [Instagram](https://www.instagram.com/omnitypeband/)
 
 📩 **Contato**
 
-* **E-mail:** [omnitypeband@gmail.com](mailto:omnitypeband@gmail.com)
+- **E-mail:** [omnitypeband@gmail.com](mailto:omnitypeband@gmail.com)
 
 ---
