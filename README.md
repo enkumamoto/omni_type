@@ -27,6 +27,8 @@ Mais do que uma banda de rock ou metal, a **Omni Type** se apresenta como uma ex
 
 ## 🎤 Press Kit – Omni Type
 
+📄 **[Press Kit & Rider Técnico (PDF)](./release/Omni_Type_Press_Kit_e_Rider.pdf)** — release completo, mapa de palco, monitoração e input list para produção de shows.
+
 📸 **[Fotos oficiais](https://drive.google.com/drive/folders/1h8MC_LHb6-f4yI1NluQXp0AADuM9uTiS?usp=drive_link)**
 
 🎧 **Streaming**
